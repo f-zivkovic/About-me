@@ -1,4 +1,3 @@
-[ ! MasterHead] (https://thumbs.gfycat.com/BoringAbsoluteAdder-max-1mb.gif)
 <h1 align="center">Hi 👋, I'm Filip Živković</h1>
 <h3 align="center">Aspiring to become a data analyst</h3>
 
